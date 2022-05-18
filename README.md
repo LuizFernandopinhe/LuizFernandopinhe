@@ -1,5 +1,5 @@
 - Hi, I’m Luiz Fernando Almeida Pinheiro 
-- I'm  orn 2006 and i am 16 old
+- I'm  born in 2006 and i am 16 old
 - I’m interested in basquetboll
 - I’m currently in the first level of gigh school
 - I’m looking to become a veterinarian in the future
